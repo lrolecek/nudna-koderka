@@ -1,1 +1,0 @@
-# nudna-koderka
